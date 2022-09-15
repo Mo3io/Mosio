@@ -1,0 +1,2 @@
+# Mosio
+Discord/Fivem/gaming
